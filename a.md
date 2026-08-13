@@ -13,3 +13,11 @@ Nästa dag besökte han ett museum. Där lärde han sig mer om Sveriges historia
 Två dagar senare åkte han hem till Mölndal igen. Han var trött men nöjd. Han berättade för sina vänner om resan och visade sina bilder.
 
 Nu är Ali hemma igen. Han arbetar som vanligt och studerar svenska varje dag. I framtiden ska han resa till Göteborgs skärgård. Han ska ta båten till en ö och ska bada i havet om vädret är bra. Han ska också träffa några vänner och ska äta god mat. Han tror att resan kommer att bli mycket rolig.
+
+
+
+**Att ha ett jobb i Sverige**
+
+Många människor vill ha ett jobb i Sverige. Ett jobb är viktigt. När man har ett jobb kan man tjäna pengar. Man kan betala hyra, köpa mat och göra roliga saker. Ett jobb hjälper också människor att träffa andra personer och lära sig nya saker.
+
+I Sverige arbetar många människor fem dagar i veckan. De arbetar ofta från måndag till fredag. En vanlig arbetsdag börjar på morgonen och slutar på eftermiddagen. Många människor arbetar åtta timmar per dag.
