@@ -1,4 +1,5 @@
 **En resa till Stockholm**
+
 Ali bor i Mölndal. Han arbetar som mjukvaruingenjör. Varje dag går han upp klockan sju och åker till jobbet. Han tycker om sitt arbete och han lär sig svenska på fritiden.
 
 Förra veckan hade Ali semester. Han bestämde sig för att resa till Stockholm. På morgonen packade han sin väska och tog tåget. Resan var lång, men den var också intressant. På tåget läste han en bok och drack kaffe.
