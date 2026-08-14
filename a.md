@@ -41,3 +41,29 @@ För personer som kommer från andra länder kan det ta tid att hitta jobb i Sve
 Sverige behöver många olika yrken. Det finns behov av lärare, sjuksköterskor, ingenjörer, chaufförer och många andra yrken. Därför finns det goda möjligheter för människor som vill arbeta och utvecklas i Sverige.
 
 Att ha ett jobb handlar inte bara om pengar. Det handlar också om gemenskap, ansvar och framtid. Ett jobb kan ge nya vänner, nya kunskaper och nya möjligheter. Därför är arbete en viktig del av livet för många människor i Sverige.
+
+**Att lära sig svenska**
+
+Ali kommer från ett annat land, men nu bor han i Sverige. Han vill lära sig svenska. Han tycker att svenska är ett fint språk, men ibland är det svårt.
+
+Varje morgon vaknar Ali klockan sju. Han äter frukost och dricker kaffe. Efter frukosten studerar han svenska i trettio minuter. Han läser texter och lär sig nya ord.
+
+På jobbet försöker han prata svenska med sina kollegor. Ibland gör han fel, men det är inte ett problem. Kollegorna hjälper honom och förklarar nya ord. Ali blir glad när han förstår mer svenska.
+
+På kvällen tittar han på svenska TV-program. Han lyssnar också på svenska poddar. När han hör ett nytt ord skriver han det i en anteckningsbok. Sedan försöker han använda ordet i en mening.
+
+En dag går Ali till affären. Han vill köpa frukt. Han frågar:
+
+– Ursäkta, var finns äpplena?
+
+En anställd svarar:
+
+– Äpplena finns där borta.
+
+Ali förstår svaret och hittar äpplena. Han känner sig stolt. Det är en liten sak, men för honom är det ett stort steg.
+
+På helgerna träffar Ali några vänner. De pratar svenska tillsammans. Ibland spelar de spel eller går på promenad. När de är tillsammans kan de öva språket på ett roligt sätt.
+
+Ali vet att det tar tid att lära sig ett nytt språk. Han är tålmodig och fortsätter att studera varje dag. Han tror att hans svenska kommer att bli bättre och bättre.
+
+I framtiden vill Ali prata svenska utan problem. Han vill förstå filmer, böcker och människor runt omkring sig. Därför fortsätter han att öva varje dag.
