@@ -14,6 +14,15 @@ Två dagar senare åkte han hem till Mölndal igen. Han var trött men nöjd. Ha
 
 Nu är Ali hemma igen. Han arbetar som vanligt och studerar svenska varje dag. I framtiden ska han resa till Göteborgs skärgård. Han ska ta båten till en ö och ska bada i havet om vädret är bra. Han ska också träffa några vänner och ska äta god mat. Han tror att resan kommer att bli mycket rolig.
 
+**slott**
+
+**väcker**
+
+**vacker**
+
+**återvände**
+
+
 
 
 **Att ha ett jobb i Sverige**
