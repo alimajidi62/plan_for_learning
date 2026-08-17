@@ -67,3 +67,17 @@ På helgerna träffar Ali några vänner. De pratar svenska tillsammans. Ibland 
 Ali vet att det tar tid att lära sig ett nytt språk. Han är tålmodig och fortsätter att studera varje dag. Han tror att hans svenska kommer att bli bättre och bättre.
 
 I framtiden vill Ali prata svenska utan problem. Han vill förstå filmer, böcker och människor runt omkring sig. Därför fortsätter han att öva varje dag.
+
+**Global uppvärmning (A1-nivå)**
+
+Global uppvärmning är ett stort problem i världen. Det betyder att jorden blir varmare. Temperaturen stiger lite varje år. Många forskare arbetar med att förstå problemet och hitta lösningar.
+
+En stor orsak till global uppvärmning är att människor använder mycket olja, kol och gas. När vi kör bilar, flyger eller använder fabriker kommer gaser ut i luften. Dessa gaser gör att värmen stannar kvar runt jorden. Därför blir klimatet varmare.
+
+När jorden blir varmare händer många saker. Isen vid Nordpolen och Sydpolen smälter. Havet stiger långsamt. I vissa länder blir det mycket varmt och torrt. I andra länder kommer det mer regn och fler stormar. Djur och växter kan få svårt att leva i sina vanliga områden.
+
+Många människor vill hjälpa till. De cyklar eller går i stället för att köra bil. De sparar el hemma och återvinner sina sopor. Vissa använder solenergi eller vindkraft. Företag och regeringar arbetar också med nya lösningar för att minska utsläppen.
+
+Jag tycker att det är viktigt att ta hand om naturen. Även små saker kan hjälpa. Om många människor gör något bra tillsammans kan vi göra en stor skillnad. Vi kan plantera träd, spara vatten och använda mindre energi.
+
+I framtiden hoppas jag att världen blir mer miljövänlig. Jag hoppas att fler människor lär sig om klimatet och hjälper till att skydda jorden. Då kan vi ge en bättre framtid till våra barn och barnbarn. Global uppvärmning är ett svårt problem, men tillsammans kan vi arbeta för en bättre värld.
