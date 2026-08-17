@@ -49,7 +49,33 @@ För personer som kommer från andra länder kan det ta tid att hitta jobb i Sve
 
 Sverige behöver många olika yrken. Det finns behov av lärare, sjuksköterskor, ingenjörer, chaufförer och många andra yrken. Därför finns det goda möjligheter för människor som vill arbeta och utvecklas i Sverige.
 
-Att ha ett jobb handlar inte bara om pengar. Det handlar också om gemenskap, ansvar och framtid. Ett jobb kan ge nya vänner, nya kunskaper och nya möjligheter. Därför är arbete en viktig del av livet för många människor i Sverige.
+Att ha ett jobb handlar inte bara om pengar. Det handlar också om gemenskap, ansvar och framtid. Ett jobb kan ge nya vänner, nya kunskaper och nya möjligheter. Därför är arbete en viktig del av livet för många människor i Sverige.¨
+
+**beror på**
+
+**trygghet**
+
+**självförtroende**
+
+**utvecklas**
+
+**stolta**
+
+**erfarenhet**
+
+
+**ge upp**
+
+
+**yrken**
+
+**möjligheter**
+
+**gemenskap**
+
+**ansvar**
+
+**kunskaper**
 
 **Att lära sig svenska**
 
