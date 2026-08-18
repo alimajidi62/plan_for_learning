@@ -116,3 +116,26 @@ Många människor vill hjälpa till. De cyklar eller går i stället för att k�
 Jag tycker att det är viktigt att ta hand om naturen. Även små saker kan hjälpa. Om många människor gör något bra tillsammans kan vi göra en stor skillnad. Vi kan plantera träd, spara vatten och använda mindre energi.
 
 I framtiden hoppas jag att världen blir mer miljövänlig. Jag hoppas att fler människor lär sig om klimatet och hjälper till att skydda jorden. Då kan vi ge en bättre framtid till våra barn och barnbarn. Global uppvärmning är ett svårt problem, men tillsammans kan vi arbeta för en bättre värld.
+
+
+**Vädret**
+
+Vädret är viktigt för många människor. Varje dag tittar många på väderprognosen. De vill veta om det ska bli sol, regn, snö eller vind.
+
+På våren blir det varmare. Snön smälter och blommorna börjar växa. Många människor tycker om våren. De känner sig glada när solen kommer tillbaka. Barn leker ute och familjer går på promenader.
+
+På sommaren är det ofta varmt och soligt. Många människor älskar sommaren. De badar, cyklar och är ute länge på kvällen. När vädret är fint känner många sig lyckliga och energiska. Men ibland är det mycket varmt. Då kan människor känna sig trötta och vilja stanna inne.
+
+På hösten blir det kallare. Löven blir gula, röda och orange. Det regnar ofta. En del människor tycker om hösten eftersom naturen är vacker. Andra känner sig lite ledsna när dagarna blir kortare och mörkare.
+
+På vintern är det kallt. I Sverige snöar det ofta. Många tycker om snö och åker skidor eller pulka. Barn brukar vara glada när det kommer mycket snö. Men vissa människor tycker inte om vintern. De fryser och saknar solen. De känner sig trötta när det är mörkt ute.
+
+Regn är också en del av vädret. När det regnar tar människor med sig paraplyer och regnkläder. En del tycker att regn är mysigt. De sitter hemma och dricker te eller kaffe. Andra tycker att regn är tråkigt eftersom de inte kan vara ute lika mycket.
+
+Vind kan vara bra och dålig. En liten vind på sommaren känns skön. Men stark vind kan göra människor oroliga. Det kan vara svårt att cykla eller gå när det blåser mycket.
+
+Människor känner olika saker inför vädret. En person kan älska sol, medan en annan tycker om regn. En del blir glada när det snöar. Andra vill ha sommar hela året. Alla tycker inte lika, men vädret påverkar oss varje dag.
+
+I Sverige pratar människor ofta om vädret. På jobbet, i skolan eller på bussen säger man till exempel: "Vilket fint väder idag!" eller "Det regnar mycket nu." Vädret är ett vanligt samtalsämne.
+
+Jag tycker att alla årstider har något bra. På sommaren finns det sol och värme. På hösten är naturen färgglad. På vintern finns det snö. På våren kommer blommorna tillbaka. Därför är vädret intressant hela året.
