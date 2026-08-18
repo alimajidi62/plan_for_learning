@@ -59,7 +59,7 @@ Att ha ett jobb handlar inte bara om pengar. Det handlar också om gemenskap, an
 
 **utvecklas**
 
-**stolta**
+**stolta** stolta över
 
 **erfarenhet**
 
