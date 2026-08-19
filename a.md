@@ -143,3 +143,11 @@ Jag tycker att alla årstider har något bra. På sommaren finns det sol och vä
 **Iran**
 
 Iran är ett land i Mellanöstern. Landet är stort och har många invånare. Huvudstaden heter Teheran. Många människor bor där. I Iran talar man persiska. Persiska kallas också farsi.
+
+Iran har många berg, öknar och städer. Ett känt berg heter Damavand. Det är mycket högt. I norra Iran finns Kaspiska havet. I södra Iran finns Persiska viken.
+
+Vädret i Iran är olika i olika delar av landet. På sommaren är det ofta mycket varmt. På vintern kan det vara kallt, särskilt i bergen. I vissa städer snöar det på vintern.
+
+Många människor i Iran arbetar på kontor, i skolor, på sjukhus eller i fabriker. Barn går i skolan och studerar olika ämnen. De lär sig att läsa, skriva och räkna.
+
+Iran har en lång historia. Det finns många gamla byggnader och historiska platser. Många turister tycker att dessa platser är intressanta. Staden Isfahan är känd för sina vackra broar och moskéer. Shiraz är också en känd stad. Där finns fina trädgårdar och gamla monument.
