@@ -139,3 +139,7 @@ Människor känner olika saker inför vädret. En person kan älska sol, medan e
 I Sverige pratar människor ofta om vädret. På jobbet, i skolan eller på bussen säger man till exempel: "Vilket fint väder idag!" eller "Det regnar mycket nu." Vädret är ett vanligt samtalsämne.
 
 Jag tycker att alla årstider har något bra. På sommaren finns det sol och värme. På hösten är naturen färgglad. På vintern finns det snö. På våren kommer blommorna tillbaka. Därför är vädret intressant hela året.
+
+**Iran**
+
+Iran är ett land i Mellanöstern. Landet är stort och har många invånare. Huvudstaden heter Teheran. Många människor bor där. I Iran talar man persiska. Persiska kallas också farsi.
