@@ -151,3 +151,13 @@ Vädret i Iran är olika i olika delar av landet. På sommaren är det ofta myck
 Många människor i Iran arbetar på kontor, i skolor, på sjukhus eller i fabriker. Barn går i skolan och studerar olika ämnen. De lär sig att läsa, skriva och räkna.
 
 Iran har en lång historia. Det finns många gamla byggnader och historiska platser. Många turister tycker att dessa platser är intressanta. Staden Isfahan är känd för sina vackra broar och moskéer. Shiraz är också en känd stad. Där finns fina trädgårdar och gamla monument.
+
+Maten i Iran är populär. Många människor tycker om ris, kebab och olika grytor. Frukt är också viktig. Iran har till exempel granatäpplen, druvor och pistagenötter. Många familjer äter tillsammans och tycker om att prata medan de äter.
+
+Iranier gillar också att dricka te. Te serveras ofta till gäster. När en gäst kommer på besök är det vanligt att bjuda på te och något sött.
+
+Familjen är viktig i Iran. Många tycker om att träffa sina föräldrar, syskon och släktingar. På helger och högtider samlas familjer ofta tillsammans.
+
+En viktig högtid heter Nowruz. Det är det persiska nyåret. Nowruz firas på våren. Familjer städar sina hem, köper nya kläder och besöker släktingar. Många tycker att Nowruz är årets bästa tid.
+
+Iran är ett land med många traditioner, vacker natur och en lång historia. Människor där är stolta över sitt språk, sin kultur och sina familjer.
