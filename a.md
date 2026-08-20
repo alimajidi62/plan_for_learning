@@ -161,3 +161,63 @@ Familjen är viktig i Iran. Många tycker om att träffa sina föräldrar, sysko
 En viktig högtid heter Nowruz. Det är det persiska nyåret. Nowruz firas på våren. Familjer städar sina hem, köper nya kläder och besöker släktingar. Många tycker att Nowruz är årets bästa tid.
 
 Iran är ett land med många traditioner, vacker natur och en lång historia. Människor där är stolta över sitt språk, sin kultur och sina familjer.
+
+**en dialog om att begära löneökning**
+
+Ali: Hej H, har du några minuter?
+
+Chefen: Hej Ali! Ja, självklart. Vad vill du prata om?
+
+Ali: Tack. Jag vill prata om min lön.
+
+Chefen: Okej. Berätta gärna.
+
+Ali: Jag tycker om mitt jobb. Jag arbetar hårt varje dag. Jag försöker hjälpa teamet och jag lär mig nya saker.
+
+Chefen: Ja, det stämmer. Du gör ett bra arbete.
+
+Ali: Tack. Jag har jobbat här länge nu. Jag har också fått mer ansvar.
+
+Chefen: Kan du ge några exempel?
+
+Ali: Ja. Jag hjälper mina kollegor när de har problem. Jag skriver dokumentation. Jag deltar i möten. Jag arbetar med olika projekt.
+
+Chefen: Ja, jag har sett det.
+
+Ali: Jag vill fortsätta att utvecklas här. Jag tycker att företaget är bra och jag vill stanna länge.
+
+Chefen: Det är bra att höra.
+
+Ali: Därför vill jag fråga om det finns möjlighet att höja min lön.
+
+Chefen: Jag förstår. Det är en viktig fråga.
+
+Ali: Jag arbetar mycket och försöker göra mitt bästa varje dag.
+
+Chefen: Jag uppskattar ditt arbete. Jag behöver titta på budgeten och våra regler för löner.
+
+Ali: Okej, jag förstår.
+
+Chefen: Har du tänkt på en särskild lönenivå?
+
+Ali: Jag vet inte exakt. Jag vill gärna ha en lön som passar mitt ansvar och mitt arbete.
+
+Chefen: Det är ett rimligt önskemål.
+
+Ali: Tack. Jag vill inte bara prata om pengar. Jag vill också utvecklas och lära mig mer.
+
+Chefen: Det är en bra inställning. Jag vet att du gillar att lära dig nya saker.
+
+Ali: Ja, det är viktigt för mig. Jag vill bli bättre och hjälpa företaget mer.
+
+Chefen: Jag uppskattar det. Jag ska undersöka möjligheterna och återkomma till dig.
+
+Ali: Tack så mycket.
+
+Chefen: Ingen fara. Har du några fler frågor?
+
+Ali: Nej, inte idag. Tack för att du lyssnade.
+
+Chefen: Tack själv, Ali. Ha en bra dag!
+
+Ali: Tack, detsamma!
