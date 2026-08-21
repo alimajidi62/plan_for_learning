@@ -221,3 +221,41 @@ Ali: Nej, inte idag. Tack för att du lyssnade.
 Chefen: Tack själv, Ali. Ha en bra dag!
 
 Ali: Tack, detsamma!
+
+**Göteborg**
+
+Göteborg är en stor stad i Sverige. Staden ligger på Sveriges västkust. Många människor bor i Göteborg. Det är Sveriges näst största stad efter Stockholm.
+
+I Göteborg finns det många fina platser. En känd plats är Liseberg. Liseberg är en stor nöjespark. Där finns karuseller, spel och konserter. Många familjer besöker Liseberg på sommaren.
+
+I Göteborg finns också många parker. En park heter Slottsskogen. Där kan man promenera, springa och titta på djur. Många människor tycker om att vara i Slottsskogen när vädret är fint.
+
+Göteborg har en stor hamn. Många båtar kommer till hamnen varje dag. Hamnen är viktig för staden och för Sverige. Från Göteborg kan man resa med färja till andra länder, till exempel Danmark.
+
+Det finns många spårvagnar i Göteborg. Spårvagnarna är gula och blå. Många människor använder spårvagn för att åka till jobbet, skolan eller affären. Det är ett enkelt sätt att resa i staden.
+
+Göteborg har också många universitet och skolor. Studenter från olika länder kommer till Göteborg för att studera. De lär sig nya saker och träffar nya vänner.
+
+Vädret i Göteborg är ofta regnigt. På hösten och vintern regnar det mycket. På sommaren kan vädret vara varmt och soligt. Många människor går till havet när det är fint väder. De badar, promenerar eller sitter på ett café.
+
+Människorna i Göteborg är ofta vänliga och hjälpsamma. Många tycker om att träffa vänner och familj. De går på restaurang, dricker kaffe och pratar tillsammans. Göteborg är känt för sin glada och trevliga stämning.
+
+Jag tycker att Göteborg är en fin stad. Där finns natur, hav, parker och många aktiviteter. Om du besöker Göteborg kan du se många intressanta platser och lära känna svensk kultur. Göteborg är en stad som många människor tycker om att bo i och att besöka.
+
+Göteborg är en gammal stad i Sverige. Staden grundades år 1621 av kung Gustav II Adolf. Han ville ha en stark stad på västkusten. Göteborg låg nära havet och var en bra plats för handel.
+
+För många år sedan var området runt Göteborg fullt av skog, vatten och små byar. Människor fiskade och arbetade nära havet. När staden växte kom fler människor dit för att bo och arbeta.
+
+På 1600-talet byggde man murar och kanaler i staden. Kanalerna finns kvar än idag. Därför säger många att Göteborg har likheter med Amsterdam i Nederländerna.
+
+Under 1700-talet blev Göteborg en viktig handelsstad. Svenska Ostindiska Kompaniet hade sin hamn i Göteborg. Stora skepp seglade till Kina och andra länder i Asien. De tog med sig te, porslin och siden tillbaka till Sverige.
+
+På 1800-talet växte staden snabbt. Nya fabriker byggdes och många människor flyttade till Göteborg för att få arbete. Hamnen blev större och fler fartyg kom till staden. Göteborg blev en av Sveriges viktigaste industristäder.
+
+Många svenskar lämnade Sverige under 1800-talet för att resa till Amerika. En stor del av dem reste från Göteborgs hamn. De hoppades på ett bättre liv i ett nytt land.
+
+Under 1900-talet fortsatte Göteborg att växa. Volvo grundades i Göteborg år 1927. Företaget blev känt över hela världen. Staden fick också fler skolor, sjukhus och bostäder.
+
+Idag är Göteborg Sveriges näst största stad. Här bor människor från många olika länder. Staden är känd för sin stora hamn, sina spårvagnar och sin vänliga atmosfär. Många turister kommer varje år för att besöka Liseberg, Universeum och de vackra parkerna.
+
+Göteborg har förändrats mycket genom historien. Från en liten stad vid havet har den blivit en modern och internationell stad. Men havet och handeln är fortfarande viktiga delar av Göteborgs liv.
