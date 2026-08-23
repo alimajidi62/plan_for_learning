@@ -259,3 +259,22 @@ Under 1900-talet fortsatte Göteborg att växa. Volvo grundades i Göteborg år 
 Idag är Göteborg Sveriges näst största stad. Här bor människor från många olika länder. Staden är känd för sin stora hamn, sina spårvagnar och sin vänliga atmosfär. Många turister kommer varje år för att besöka Liseberg, Universeum och de vackra parkerna.
 
 Göteborg har förändrats mycket genom historien. Från en liten stad vid havet har den blivit en modern och internationell stad. Men havet och handeln är fortfarande viktiga delar av Göteborgs liv.
+
+
+**Skogen i Sverige och Iran**
+
+Sverige är ett land med mycket skog. Det finns skog på många platser i Sverige. I skogen finns många träd, till exempel gran, tall och björk. Det finns också många djur. Man kan se älg, rådjur, räv och olika fåglar.
+
+Sveriges skogar är olika under året. På våren kommer nya gröna blad. På sommaren är skogen grön och ljus. På hösten blir många blad gula, röda och bruna. På vintern kan det vara mycket snö och kallt. Då ser skogen ofta vit och lugn ut.
+
+Skogen är viktig för människor i Sverige. Många människor går i skogen för att promenera, springa eller plocka bär och svamp. Man kan också åka skidor i skogen på vintern. Skogen ger oss också trä. Trä används till hus, möbler och papper.
+
+Iran har också mycket skog, men skogen ser ofta annorlunda ut. I norra Iran finns stora och gröna skogar. De ligger nära Kaspiska havet. Där är det ofta mer regn än i många andra delar av Iran. Där finns många olika träd och växter.
+
+I Sverige är det ofta kallare än i Iran. Därför har Sverige många träd som klarar kyla och snö, till exempel gran och tall. I norra Iran är klimatet varmare och fuktigare. Där kan man hitta andra typer av träd och växter.
+
+En stor skillnad är också att Sverige har skog i stora delar av landet. Iran har många torra områden och berg, så skog finns inte överallt. I centrala och södra Iran är det ofta mycket torrare än i Sverige.
+
+Det finns också likheter. Både Sverige och Iran har skogar som är viktiga för naturen. Skogen är hem för många djur och växter. Skogen ger också människor möjlighet att vara ute i naturen.
+
+Jag tycker att skogen är viktig i både Sverige och Iran. Det är viktigt att ta hand om skogen och skydda naturen. Om vi tar hand om skogen kan människor och djur använda den också i framtiden.
